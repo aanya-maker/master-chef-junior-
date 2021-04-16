@@ -1,0 +1,1 @@
+Boil water in a saucepan. · Add sugar and tea powder in it and boil it for 3-4 minutes on medium flame. · Add milk and boil it over medium flame ... 12 mins
